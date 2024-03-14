@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZukisaniG
+- 👀 I’m interested in sports
+- 🌱 I’m currently learning informatics
+- 📫 How to reach me, gxawuzukisani@gmail.com 
+- 😄 Pronouns: He/Him
